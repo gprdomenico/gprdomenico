@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gprdomenico 🇦🇺
+- 👋 Hi, I’m @gprdomenico 🇺🇸 🇦🇺
 - 👀 I’m interested in ... 🚀
 - 🌱 I’m currently learning ... 🚀
 - 💞️ I’m looking to collaborate on ... 🚀
